@@ -1,1 +1,1 @@
-#http://www.BetterMotherFuckingWebsite.com
+#BetterMotherFuckingWebsite
